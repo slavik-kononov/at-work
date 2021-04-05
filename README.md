@@ -1,1 +1,0 @@
-# homework_for_courses
